@@ -1,1 +1,1 @@
-w3Ghana - Guide application.
+w3Ghana - Guide Application.
